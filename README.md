@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a generalist who loves to build creative solutions to problems in the social impact, music, and healthcare space.
+I am a generalist who loves to build creative solutions to problems in the climate, social impact, music, and healthcare space.
 
 
 ## 🌐 Socials:
